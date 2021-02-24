@@ -1,1 +1,1 @@
-# hunshcn.github.io
+# https://xinac721.github.io/gh-proxy/
